@@ -1,2 +1,0 @@
-# PRUEBA-B
-PUEBA B

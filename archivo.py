@@ -1,7 +1,0 @@
-"ARCHIVITO 3"
-"LO LOGREEEE"
-"el tiempo passó, como una estrella fugaz"
-"y nuestro amor falleció, sin razooon"
-"QUISIERA VOLVER A AMARTE, VOLVER A TENERTE CERCA DE MI, GIRL"
-"MIS OJOS LLORAN POR TI"
-"ME HACES TANTA FALTA, NO LO PUEDO NEGAR"
