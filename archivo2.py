@@ -1,3 +1,7 @@
 "SEGUNDO CODIGO"
+"AGREGANDOOO COD"
+"tengo sueño"
 "BAAAAAAAAAAAAAAAAAAAA"
 "JIJIJIJI"
+"tengo hambre"
+"ganas de llorar"
